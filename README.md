@@ -1,0 +1,1 @@
+# Razonamiento_Cuantitativo_Medio
